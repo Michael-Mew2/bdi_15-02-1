@@ -1,2 +1,7 @@
-# bdi_15-02-1
-Hi mein Name ist Michael und wenn ich groß bin will ich der erste Astronaut mit massiver Höhenangst haben.
+# SOS- Affenalarm
+
+S-O-S-Affenalarm
+Zieh die Stäbe raus
+doch pass gut auf,
+Auf vielen sitzen Affen drauf,
+wenn sie fallen ist es aus!
